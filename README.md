@@ -56,7 +56,7 @@ University of Perpetual Help System Dalta — (2013)
 High School — Rochepol Jane Academy — (2011)
 
 Certifications
-- RBA-Env't., Health & Safety Consultancy & Training Solution 
+RBA-Env't., Health & Safety Consultancy & Training Solution 
 - Basic Occupational Safety and Health (SOSH / S02) — 2020
 
 ---
