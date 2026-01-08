@@ -59,6 +59,9 @@ Certifications
 RBA-Env't., Health & Safety Consultancy & Training Solution 
 - Basic Occupational Safety and Health (SOSH / S02) — 2020
 
+Alison Empower Yourself
+- Supply Chain & Logistics Management (January 8, 2026 )
+
 ---
 
 ## Languages
